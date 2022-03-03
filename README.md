@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Abbadon420
-- 👀 I’m interested in playing games.
+- 👀 I’m interested in you.
 - 🌱 I’m currently learning html,c++ and python
-- 💞️ I’m looking to collaborate on ...
+- 💞️ I’m looking to collaborate on what we can accomplish together.
 - 📫 you can reach me via discord @Abbadon#7282
 
 <!---
